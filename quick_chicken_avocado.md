@@ -7,7 +7,7 @@
 ## Ingredients
 
 * 2 cooked chicken breasts
-* 1 avocado, avocado
+* 1 avocado, sliced
 * 1/2 cup Trader Joe's Pico de Gaillo
 * Tabasco Chipotle sauce
 
