@@ -1,6 +1,7 @@
 # Cauliflower Rice California Rolls
 
 **TIME:** 30 minutes
+
 **SERVINGS:** 4-6
 
 ## Ingredients
