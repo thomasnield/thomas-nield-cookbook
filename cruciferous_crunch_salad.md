@@ -1,6 +1,7 @@
 # Cruciferous Crunch Salad
 
 **TIME:** 15 minutes
+
 **SERVINGS:** 2
 
 ## Ingredients
