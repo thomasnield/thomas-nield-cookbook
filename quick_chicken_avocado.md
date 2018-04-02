@@ -1,4 +1,4 @@
-# Quick Chicken Breast with Avocado
+# Quick Chipotle Chicken with Avocado
 
 **TIME:** 5 minutes
 
