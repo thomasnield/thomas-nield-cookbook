@@ -2,6 +2,8 @@
 
 **TIME:** 5 minutes
 
+**SERVINGS:** 2
+
 ## Ingredients
 
 * 2 cooked chicken breasts
